@@ -68,16 +68,6 @@ If you're into:
 - 3D / Interactive experiences  
 - Creative development  
 
-👉 Let’s connect and build something cool.
-
----
-
-## 📌 Links
-
-- 🔗 Follow: Add your link
-- 💼 Projects: Add your portfolio
-- 📫 Contact: Add email / socials
-
 ---
 
 ## ⚡ Signature
